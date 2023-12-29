@@ -6,4 +6,4 @@ I declare that I am authorized and able to make this agreement and sign this dec
 
 Signed,
 
-Ivana Bartoňková ivana@edoo.is https://github.com/cunivca
+Ivana Bartoňková ivana@origamis.cz https://github.com/cunivca
